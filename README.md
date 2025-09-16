@@ -16,7 +16,7 @@ Improve employee engagement and satisfaction
 
 By integrating all these functions into one platform, businesses save valuable time, reduce mistakes, and foster a more productive workforce.
 
-Ensaan Tech: Leading the HR Revolution in Dubai
+**Ensaan Tech: Leading the HR Revolution in Dubai
 When it comes to transforming HR management, Ensaan Tech stands out as Dubai’s No.1 HR software provider. Their cloud-based HR solutions are tailored for UAE and GCC businesses, combining efficiency, compliance, and innovation.
 
 Key Features of Ensaan Tech HR Solutions
